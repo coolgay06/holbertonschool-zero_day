@@ -1,1 +1,1 @@
-Greetings!
+Too cool for school!
